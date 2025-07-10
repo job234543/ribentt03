@@ -15,4 +15,4 @@
 隐私保护方面，平台通常会采用HTTPS加密技术，保障用户的浏览安全。用户的个人信息和观看记录不会被泄露，避免了恶意广告和病毒的干扰。  
 总的来说，国产精品成人免费视频平台提供了高清画质、免注册观看和强大的隐私保护功能，是广大成人影像爱好者的不二选择。无论是从资源丰富度还是用户体验，平台都力求为用户提供最佳的观影体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/job234543/ribentt03)</span>
